@@ -10,3 +10,5 @@ I want you to knwo
 OLLLLLLLLLLLLLLLLLL
 
 Ca va pas le faire
+
+EMERGENCY FIXES
